@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RACJ830708HVZMRN02
+RACJ830708HVZMRN02
